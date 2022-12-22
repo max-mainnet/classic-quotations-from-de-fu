@@ -46,3 +46,6 @@ ei 把这个牛戴上脚环
 
 
 这是我的直播视频号，请大家多多关注[Salute][Salute][Salute]感谢支持助农行动
+
+![9371671705139_ pic](https://user-images.githubusercontent.com/50706666/209115307-793bbe47-cad8-48c6-b0ef-5155c41980e0.jpg)
+
